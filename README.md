@@ -1,2 +1,3 @@
 # odin-recipes
-recipess
+THESE are recipes FOR MY FAVORITE FOODS, BELIEVE TRUST AND THEN WINNN
+
